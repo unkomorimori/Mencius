@@ -3,23 +3,38 @@ https://www.youtube.com/channel/UC-MNWTEGjwKE8fFii82zUBA/videos
 
 ### 激読み☆孟子1
 https://www.youtube.com/watch?v=mLMc8OugAAw
-- 梁恵王章句　上 01 - 05
+- 梁恵王章句 上 01
+- 梁恵王章句 上 02
+- 梁恵王章句 上 03
+- 梁恵王章句 上 04
+- 梁恵王章句 上 05
 
 ### 激読み☆孟子2
 https://www.youtube.com/watch?v=yPMuDoqf7T0
-- 梁恵王章句　上 06 - 06
+- 梁恵王章句 上 06
 
 ### 激読み☆孟子3
 https://www.youtube.com/watch?v=n99_Ar3O0l8
-- 梁恵王章句　上 07 - 恵王章句　下 03
+- 梁恵王章句 上 07
+- 恵王章句 下 01
+- 恵王章句 下 02
+- 恵王章句 下 03
 
 ### 激読み☆孟子4
 https://www.youtube.com/watch?v=nSa3YYbaRfc
-- 梁恵王章句　下 03 - 06
+- 梁恵王章句 下 03
+- 梁恵王章句 下 04
+- 梁恵王章句 下 05
+- 梁恵王章句 下 06
 
 ### 激読み☆孟子5
 https://www.youtube.com/watch?v=lii-wBUJ5DI
-- 梁恵王章句　下 07 - 
+- 梁恵王章句 下 07
+- 梁恵王章句 下 08
+- 梁恵王章句 下 09
+- 梁恵王章句 下 10
+- 梁恵王章句 下 11
+- 梁恵王章句 下 12
 
 ### 激読み☆孟子6
 https://www.youtube.com/watch?v=tyPbN2j6lGg
@@ -31,10 +46,11 @@ https://www.youtube.com/watch?v=tyPbN2j6lGg
 ### 激読み☆孟子7
 https://www.youtube.com/watch?v=3oNVbqaFKZ0
 - 公孫丑章句 上 01 
+- 公孫丑章句 上 02
 
 ### 激読み☆孟子8
 https://www.youtube.com/watch?v=fSz56MFIn94
-- 公孫丑章句　上 02 - 
+- 公孫丑章句 上 02
 
 ```
 梁恵王章句　上
