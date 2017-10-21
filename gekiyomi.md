@@ -23,10 +23,14 @@ https://www.youtube.com/watch?v=lii-wBUJ5DI
 
 ### 激読み☆孟子6
 https://www.youtube.com/watch?v=tyPbN2j6lGg
-- 梁恵王章句　下 13 - 
+- 梁恵王章句 下 13
+- 梁恵王章句 下 14
+- 梁恵王章句 下 15
+- 梁恵王章句 下 16
 
 ### 激読み☆孟子7
-- なし
+https://www.youtube.com/watch?v=3oNVbqaFKZ0
+- 公孫丑章句 上 01 
 
 ### 激読み☆孟子8
 https://www.youtube.com/watch?v=fSz56MFIn94
